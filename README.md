@@ -1,5 +1,6 @@
 # 💫 About Me:
-Aspiring IT Specialist | System Integration & IT Infrastructure | Exploring Cybersecurity & AI | Learning, Building & Sharing
+Aspiring IT Specialist | Windows & Linux Administration | System Integration & IT Infrastructure | Cybersecurity & AI | Learning, Building & Sharing
+
 
 
 ## 🌐 Socials:
