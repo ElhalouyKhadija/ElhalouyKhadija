@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Aspiring IT Professional | 🔐 Cybersecurity Enthusiast | 🤖 AI Explorer<br><br>Passionate about building secure systems and exploring the intersection of artific
+Aspiring IT Specialist | System Integration & IT Infrastructure | Exploring Cybersecurity & AI | Learning, Building & Sharing
 
 
 ## 🌐 Socials:
